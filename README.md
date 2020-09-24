@@ -1,4 +1,5 @@
-### Hi there 👋, Here is what I am working on.  
+### Hi there 👋, I am a data analyst and determine to advance my analytical skills in various area. 
+### Here is what I am working on.  
 
 
 Here are some ideas to get you started:
