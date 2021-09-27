@@ -1,4 +1,4 @@
-### Hi there 👋, I am a data analyst and determine to advance my analytical skills in various area. 
+### Hi there 👋, I am a data analyst and determine to advance my analytical skills in product analytics. 
 ### Here is what I am working on.  
 
 
